@@ -122,8 +122,8 @@ The discount will show immediately after applying the coupon, before you need to
 
 While **AIMOJO40** is our top recommendation, here are other genuine codes that might work for you:
 
-- **SCI50**: 40% off on SciSpace subscription  
-- **AW40**: 40% off any SciSpace yearly plan  
+- **SCI30**: 30% off on SciSpace subscription  
+- **AW30**: 30% off any SciSpace yearly plan  
 - **AW20**: 20% off any SciSpace monthly plan  
 
 > Note: You can only apply one coupon code per account, so choose wisely!
