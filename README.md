@@ -99,17 +99,6 @@ Let's break down those savings:
 - **Labs & Universities**: From $18/month ($216/year) to just **$57.60/year** = **73% total savings**  
 - **Premium**: From $20/month ($240/year) to just **$86.40/year** = **64% total savings**
 
----
-
-## Other Valid SciSpace Coupon Codes
-
-While **AIMOJO40** is our top recommendation, here are other genuine codes that might work for you:
-
-- **SCI50**: 40% off on SciSpace subscription  
-- **AW40**: 40% off any SciSpace yearly plan  
-- **AW20**: 20% off any SciSpace monthly plan  
-
-> Note: You can only apply one coupon code per account, so choose wisely!
 
 ---
 
@@ -126,6 +115,18 @@ Applying your SciSpace coupon is simple:
 7. Complete your payment details and enjoy your massive discount  
 
 The discount will show immediately after applying the coupon, before you need to enter any payment details.
+
+---
+
+## Other Valid SciSpace Coupon Codes
+
+While **AIMOJO40** is our top recommendation, here are other genuine codes that might work for you:
+
+- **SCI50**: 40% off on SciSpace subscription  
+- **AW40**: 40% off any SciSpace yearly plan  
+- **AW20**: 20% off any SciSpace monthly plan  
+
+> Note: You can only apply one coupon code per account, so choose wisely!
 
 ---
 
