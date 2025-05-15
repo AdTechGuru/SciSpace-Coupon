@@ -1,5 +1,7 @@
 # Massive 81% OFF SciSpace Coupon Codes 2025 - Save Big on AI Research Tools!
 
+[![SciSpace Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747313567/SciSpace_Discount_Coupon_1_gwubdh.jpg)](https://scispace.com/?via=affinco)
+
 Looking to boost your research game without emptying your wallet? You're in luck! Today I'm sharing the best SciSpace coupon codes for May 2025, including our exclusive **AIMOJO40** code that gives you an extra **40% OFF** all plans.  
 When stacked with SciSpace's built-in **41% yearly discount**, you're looking at a whopping **81% total savings**. These SciSpace discount codes are 100% verified and ready to use right now.
 
