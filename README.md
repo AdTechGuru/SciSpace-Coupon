@@ -80,7 +80,7 @@ SciSpace offers three main pricing tiers to suit different needs and budgets:
 - Early access to upcoming collaboration features  
 - **$20/month** (or **$12/month billed yearly = $144/year**)
 
-[![SciSpace Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747313567/SciSpace_Discount_Coupon_2_dh4sxb.jpg)](https://scispace.com/?via=affinco)
+[![SciSpace Discount Coupon 2](https://res.cloudinary.com/drzqec0oi/image/upload/v1747313907/SciSpace_Discount_Coupon_2_tspscf.jpg)](https://scispace.com/?via=affinco)
 
 ---
 
