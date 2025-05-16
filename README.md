@@ -7,7 +7,7 @@ When stacked with SciSpace's built-in **41% yearly discount**, you're looking at
 
 For students and researchers drowning in academic papers and complex data, SciSpace offers a lifeline with its AI-powered research tools. And with these SciSpace promo codes and special offers, accessing premium academic assistance has never been more affordable.
 
-👉 **[Visit SciSpace now](https://scispace.com/?via=affinco)**
+[![Get 81% OFF – Use Code AIMOJO40](https://res.cloudinary.com/drzqec0oi/image/upload/v1747375704/Get_81_OFF_Use_Code_AIMOJO40_k1uzjh.png)](https://scispace.com/?via=affinco)
 
 ---
 
