@@ -2,8 +2,8 @@
 
 [![SciSpace Discount Coupon 1](https://res.cloudinary.com/drzqec0oi/image/upload/v1747313567/SciSpace_Discount_Coupon_1_gwubdh.jpg)](https://scispace.com/?via=affinco)
 
-Looking to boost your research game without emptying your wallet? You're in luck! Today I'm sharing the best SciSpace coupon codes for May 2025, including our exclusive **AIMOJO40** code that gives you an extra **40% OFF** all plans.  
-When stacked with SciSpace's built-in **41% yearly discount**, you're looking at a whopping **81% total savings**. These SciSpace discount codes are 100% verified and ready to use right now.
+Looking to boost your research game without emptying your wallet? You're in luck! Today I'm sharing the best SciSpace coupon codes for May 2025, including our exclusive **[AIMOJO40](https://scispace.com/?via=affinco)** code that gives you an extra **40% OFF** all plans.  
+When stacked with SciSpace's built-in **[41% yearly discount](https://scispace.com/?via=affinco)**, you're looking at a whopping **[81% total savings](https://scispace.com/?via=affinco)**. These SciSpace discount codes are 100% verified and ready to use right now.
 
 For students and researchers drowning in academic papers and complex data, SciSpace offers a lifeline with its AI-powered research tools. And with these SciSpace promo codes and special offers, accessing premium academic assistance has never been more affordable.
 
@@ -97,7 +97,7 @@ This is our exclusive coupon that gives you an extra **40% off** any SciSpace pl
 - **Labs & Universities Yearly**: $96 → **$57.60/year** (just **$4.80/month**)  
 - **Premium Yearly**: $144 → **$86.40/year** (just **$7.20/month**)
 
-But here's the magic part: This **40% discount stacks on top of the built-in 41% yearly discount** that SciSpace already offers! When you choose yearly billing and apply our AIMOJO40 code, you're essentially getting a massive **81% discount** compared to regular monthly prices.
+But here's the magic part: This **[40% discount stacks on top of the built-in 41% yearly discount](https://scispace.com/?via=affinco)** that SciSpace already offers! When you choose yearly billing and apply our AIMOJO40 code, you're essentially getting a massive **[81% discount](https://scispace.com/?via=affinco)** compared to regular monthly prices.
 
 Let's break down those savings:
 - **Labs & Universities**: From $18/month ($216/year) to just **$57.60/year** = **73% total savings**  
@@ -114,7 +114,7 @@ Applying your SciSpace coupon is simple:
 2. Select your preferred plan (Labs & Universities or Premium)  
 3. Choose monthly or yearly billing (yearly gives you the biggest savings)  
 4. Click on "Add promotion code" at checkout  
-5. Enter **AIMOJO40** in the coupon field  
+5. Enter **[AIMOJO40](https://scispace.com/?via=affinco)** in the coupon field  
 6. Click "Apply" and watch your total drop!  
 7. Complete your payment details and enjoy your massive discount  
 
@@ -124,7 +124,7 @@ The discount will show immediately after applying the coupon, before you need to
 
 ## Other Valid SciSpace Coupon Codes
 
-While **AIMOJO40** is our top recommendation, here are other genuine codes that might work for you:
+While **[AIMOJO40](https://scispace.com/?via=affinco)** is our top recommendation, here are other genuine codes that might work for you:
 
 - **SCI30**: 30% off on SciSpace subscription  
 - **AW30**: 30% off any SciSpace yearly plan  
@@ -179,7 +179,7 @@ Unfortunately, SciSpace doesn't currently accept PayPal payments.
 
 ## Grab Your SciSpace Discount Today!
 
-Don't miss this chance to get SciSpace at the lowest possible price! Our exclusive **AIMOJO40** coupon code gives you an extra **40% off** any plan, which stacks with the built-in yearly discount for up to **81% total savings**.
+Don't miss this chance to get SciSpace at the lowest possible price! Our exclusive **[AIMOJO40](https://scispace.com/?via=affinco)** coupon code gives you an extra **40% off** any plan, which stacks with the built-in yearly discount for up to **[81% total savings](https://scispace.com/?via=affinco)**.
 
 For just a few pounds per month, you'll unlock a complete AI research assistant that helps you read, understand, and create academic content faster than ever before. Whether you're a stressed student facing dissertation deadlines or a researcher juggling multiple papers, these SciSpace discount codes offer amazing value.
 
